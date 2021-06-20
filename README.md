@@ -1,1 +1,3 @@
-Wow this is a repository about me. REeal fascinationg shit. konta sēpul̥o ikkadā nā gurinchi vrāsutha
+This is a repository about me 
+Really fascinating stuff (woooooooow)  
+konta sēpul̥o ikkadā nā gurinchi vrāsutha
